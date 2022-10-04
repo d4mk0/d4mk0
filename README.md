@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+Bombombom.
+I should write some info here...
+So lazy :(
+
+Im open. You can write DM me.
 <!--
 **d4mk0/d4mk0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
